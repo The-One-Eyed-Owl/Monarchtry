@@ -34,7 +34,7 @@
 
 ── I LOVE HOLOLIVE A LOT, YOU DON'T UNDERSTAND IT I SWEAR sob sob. .<img src="https://github.com/user-attachments/assets/7a7e90a1-4ff4-4643-93c5-87a86d70d820" width="39" height="39">
 
- - Films/Animes & Mangas: _BNHA_, Soul Eater, _Black Lagoon_, _Fullmetal Alchemist_, Neon genesis: Evangelion, _White snake trilogy_, Goodnight punpun, BSD, Mahou Shoujo Madoka Magica, Tokyo god of father, Death note, etc. .
+ - Films/Animes & Mangas: _BNHA_, Soul Eater, _Black Lagoon_, _Fullmetal Alchemist_, Neon genesis: Evangelion, _White snake trilogy_, Goodnight punpun, BSD, Mahou Shoujo Madoka Magica, Tokyo god of father, Death note, Gachiakuta, etc. . 
  - Games: _AoV_, Arknights, Omori, CROB/CRK, FNAF, HI3rd, _ENA: Dream BBQ_, _Ms.Fortune_, Final Fantasy, Persona 5, Untitled Goose game, _Resident Evil_, Limbus Company, etc. .
 
    (Honestly there are a lot more, it would be too long to list all of it out. Just ask me!)
@@ -61,6 +61,8 @@ _𝙼𝚢 𝚕𝚘𝚟𝚎𝚕𝚢 b𝚒𝚊𝚜, 𝚌𝚘𝚖𝚏 𝚌𝚑𝚊�
 <img src="https://github.com/user-attachments/assets/0052350f-c612-4100-8576-9f1fc9deb222" width="34" height="34"> Ling Yue n' Xiao-Qing ── Underrated duo in AoV, they should kiss istg guys. NO MAN COULD EVER AND NEVER EVER SEPARATES THEM.
 
 ✦ Aoi {AoV}
+
+✦ Eishia Stilza n' Riyo Reaper
 
 <img src="https://github.com/user-attachments/assets/73e1b951-9444-4fdd-b7dc-786bc88e5e94" width="30" height="30">Baoqing FangZhu
 
